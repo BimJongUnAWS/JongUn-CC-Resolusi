@@ -1,2 +1,2 @@
 # JongUn-CC-Resolusi
-Resolusi seorang Bima untuk beberapa bulan kedepan
+Resolusi seorang Bima untuk beberapa waktu kedepan
